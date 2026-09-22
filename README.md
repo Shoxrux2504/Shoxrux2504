@@ -1,2 +1,2 @@
-#Hi there, I'm [MR.SHOKHRUKH]!
+#Hi I'm MR.SHOKHRUKH
 
